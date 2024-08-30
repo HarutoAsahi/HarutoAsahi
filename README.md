@@ -1,6 +1,6 @@
 - Hi, I’m Haruto Tsutsumi
 - I love anime, gaming, scary stuff, freeze dried fruit.
-- How to reach me Instgram: msuniquesoul or discord: nekoweeb1984
+- You can reach me from Instgram: msuniquesoul
 - Pronouns: She/Her
 
 <!---
